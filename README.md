@@ -1,6 +1,5 @@
 <p align="center">
- <img src="https://static.wikia.nocookie.net/gensin-impact/images/4/4d/Icon_Emoji_Paimon%27s_Paintings_05_Hu_Tao_4.png/revision/latest?cb=20240303110143" alt="Icon_Emoji_Paimon&#39;s_Paintings_05_Hu_Tao_4"/>
-
+ <img width="512" height="512" alt="sticker_1" src="https://github.com/user-attachments/assets/481ac2fc-f603-4e47-bac5-67aee1c01859" />
 </p>
 
 <p align="center"> ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ</p>
