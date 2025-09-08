@@ -51,7 +51,7 @@
 
  #
 
-*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([oOob_genshin ](https://x.com/oOob_genshin)/ɪᴍᴀɢᴇ)
+*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([oOob_genshin ](https://x.com/oOob_genshin)/ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ)
 
 
 last update: 08/14/2025
