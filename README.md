@@ -1,16 +1,17 @@
 
  ![Image](https://github.com/user-attachments/assets/bc73bef2-0f7e-4f21-8037-bb7f9e578ead) 
 
+
 <p align="center"> ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ</p>
 
-# <p align="center">"One client, two clients, three clients!"</p>
+# <p align="center">"𝕺𝖓𝖊 𝖈𝖑𝖎𝖊𝖓𝖙, 𝖙𝖜𝖔 𝖈𝖑𝖎𝖊𝖓𝖙𝖘, 𝖙𝖍𝖗𝖊𝖊 𝖈𝖑𝖎𝖊𝖓𝖙𝖘!"</p>
 
 <p align="center">╭┈┈┈┈┈┈┈┈┈┈┈ ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ ┈┈┈┈┈┈┈┈┈┈┈╮
 
  
 
 
-<p align="center">ɪ'ᴍ ᴀ Hu Tao ᴍᴀɪɴ—ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?</p>
+**<p align="center">ɪ'ᴍ ᴀ HU TAO ᴍᴀɪɴ, ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?</p>**
 
 <p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
@@ -20,26 +21,25 @@
 <p align="center">ᴀʟꜱᴏ ᴍᴀɴᴀɢᴇᴅ ᴛᴏ ʟᴜᴄᴋɪʟʏ ᴘᴜʟʟ ʜᴇʀ ᴡᴇᴀᴘᴏɴ ᴀꜱ ᴡᴇʟʟ.
 ᴡʜɪᴄʜ ɪ ᴘʟᴀɴ ᴛᴏ R5—ꜰɪɴɢᴇʀꜱ ᴄʀᴏꜱꜱᴇᴅ.
 
-<p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ*ੈ✿⋆ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+<p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
 <p align="center">( INFJ )
 
-<p align="center">( She/Her ) ( int / c+h )
+<p align="center">( ꜱʜᴇ/ʜᴇʀ ) ( ɪɴᴛ / ᴄ+ʜ )
 
 <p align="center">ɪ ᴀᴍ ᴍᴏꜱᴛʟʏ ꜰᴏᴜɴᴅ ɪɴ ᴛʜᴇ ɢᴇɴꜱʜɪɴ/ʜᴏʏᴏ ᴀʀᴇᴀ—ɪꜰ ᴛʜᴀᴛ ᴡᴀꜱɴ'ᴛ ᴏʙᴠɪᴏᴜꜱ ᴇɴᴏᴜɢʜ.
 
-<p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ*ੈ✿⋆ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+<p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
-<p align="center">*ੈ❀ Sometimes my energy is low or takes a dip, it might take a while for a response.
+<p align="center">*ੈ❀ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ᴍʏ ᴇɴᴇʀɢʏ ɪꜱ ʟᴏᴡ ᴏʀ ᴛᴀᴋᴇꜱ ᴀ ᴅɪᴘ, ɪᴛ ᴍɪɢʜᴛ ᴛᴀᴋᴇ ᴀ ᴡʜɪʟᴇ ꜰᴏʀ ᴀ ʀᴇꜱᴘᴏɴꜱᴇ.
 
-<p align="center">*ੈ❀ I tend to be afk or offtab most of the time, so "/whisper" me for attention.
+<p align="center">*ੈ❀ ɪ ᴛᴇɴᴅ ᴛᴏ ʙᴇ ᴀꜰᴋ ᴏʀ ᴏꜰꜰᴛᴀʙ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ, ꜱᴏ "/ᴡʜɪꜱᴘᴇʀ" ᴍᴇ ꜰᴏʀ ᴀᴛᴛᴇɴᴛɪᴏɴ.
 
-<p align="center">*ੈ❀ I reject random friend requests, at least interact with me once. Plz.
+<p align="center">*ੈ❀ ɪ ʀᴇᴊᴇᴄᴛ ʀᴀɴᴅᴏᴍ ꜰʀɪᴇɴᴅ ʀᴇǫᴜᴇꜱᴛꜱ, ᴀᴛ ʟᴇᴀꜱᴛ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ ᴏɴᴄᴇ. ᴘʟᴢ.
 
-<p align="center">*ੈ❀ I don't tolerate copy-cats, but inspiration is okay. Please know the difference.
+<p align="center">*ੈ❀ ɪ ᴅᴏɴ'ᴛ ᴛᴏʟᴇʀᴀᴛᴇ ᴄᴏᴘʏ-ᴄᴀᴛꜱ, ʙᴜᴛ ɪɴꜱᴘɪʀᴀᴛɪᴏɴ ɪꜱ ᴏᴋᴀʏ. ᴘʟᴇᴀꜱᴇ ᴋɴᴏᴡ ᴛʜᴇ ᴅɪꜰꜰᴇʀᴇɴᴄᴇ.
 
-<p align="center">*ੈ❀ Feel free to talk to me about your interests, i like getting to know people.
-
+<p align="center">*ੈ❀ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ ᴀʙᴏᴜᴛ ʏᴏᴜʀ ɪɴᴛᴇʀᴇꜱᴛꜱ, ɪ ʟɪᴋᴇ ɢᴇᴛᴛɪɴɢ ᴛᴏ ᴋɴᴏᴡ ᴘᴇᴏᴘʟᴇ.
 
 <p align="center">ᴛʜᴀᴛ'ꜱ ᴀʙᴏᴜᴛ ɪᴛ— ɪ ᴊᴜꜱᴛ ᴛᴇɴᴅ ᴛᴏ ᴍᴀᴋᴇ ᴄᴏꜱ/ꜱᴋɪɴꜱ ᴏꜰ ᴛʜɪɴɢꜱ ɪ ʟɪᴋᴇ/ʟᴏᴠᴇ 
 ᴀɴᴅ ɪɴ ᴛʜɪꜱ ᴄᴀꜱᴇ ɪᴛ'ꜱ ᴛʜᴇ 𝟩𝟩ᴛʜ ᴅɪʀᴇᴄᴛᴏʀ ᴏꜰ ᴛʜᴇ ᴡᴀɴɢꜱʜᴇɴɢ ꜰᴜɴᴇʀᴀʟ ᴘᴀʀʟᴏʀ. ᴍᴏꜱᴛʟʏ.
@@ -48,11 +48,12 @@
 
 
 <p align="center">╰┈┈┈┈┈┈┈┈┈┈┈ ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ ┈┈┈┈┈┈┈┈┈┈┈╯
-#
 
-*ੈ✿⋆ Credits:([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ)
+ #
+
+*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([oOob_genshin ](https://x.com/oOob_genshin)/ɪᴍᴀɢᴇ)
+
 
 last update: 08/14/2025
 
-
-
+![Image](https://github.com/user-attachments/assets/03690fa5-c3b8-4265-a54c-fb54f4838d2c)
