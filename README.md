@@ -1,6 +1,7 @@
+<p align="center">
+ <img src="https://static.wikia.nocookie.net/gensin-impact/images/4/4d/Icon_Emoji_Paimon%27s_Paintings_05_Hu_Tao_4.png/revision/latest?cb=20240303110143" alt="Icon_Emoji_Paimon&#39;s_Paintings_05_Hu_Tao_4"/>
 
- ![Image](https://github.com/user-attachments/assets/bc73bef2-0f7e-4f21-8037-bb7f9e578ead) 
-
+</p>
 
 <p align="center"> ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ</p>
 
