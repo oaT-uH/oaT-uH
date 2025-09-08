@@ -1,7 +1,8 @@
 
-![Image](https://github.com/user-attachments/assets/bc73bef2-0f7e-4f21-8037-bb7f9e578ead)
+ ![Image](https://github.com/user-attachments/assets/bc73bef2-0f7e-4f21-8037-bb7f9e578ead) 
 
-ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ
+ ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ
+
 
 ╭┈┈┈┈┈┈┈┈┈┈┈ ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ ┈┈┈┈┈┈┈┈┈┈┈╮
  
@@ -47,7 +48,7 @@
 
 ╰┈┈┈┈┈┈┈┈┈┈┈ ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ ┈┈┈┈┈┈┈┈┈┈┈╯
 
-*ੈ✿⋆ Credits: ([Doosio]([url](https://www.deviantart.com/doosio)) / icon)
+*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ)
 
 last update: 08/14/2025
 
