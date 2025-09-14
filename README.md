@@ -25,7 +25,7 @@
 
 <p align="center">( INFJ )
 
-<p align="center">( ꜱʜᴇ/ʜᴇʀ ) ( ɪɴᴛ / ᴄ+ʜ )
+<p align="center">( ꜱʜᴇ/ʜᴇʀ ) ( ɪɴᴛ / ᴄ+ʜ ) ( ᴅɴᴄ )
 
 <p align="center">ɪ ᴀᴍ ᴍᴏꜱᴛʟʏ ꜰᴏᴜɴᴅ ɪɴ ᴛʜᴇ ɢᴇɴꜱʜɪɴ/ʜᴏʏᴏ ᴀʀᴇᴀ—ɪꜰ ᴛʜᴀᴛ ᴡᴀꜱɴ'ᴛ ᴏʙᴠɪᴏᴜꜱ ᴇɴᴏᴜɢʜ.
 
@@ -54,7 +54,7 @@
 *ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([oOob_genshin ](https://x.com/oOob_genshin)/ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ)
 
 
-ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 09/08/2025
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 09/14/2025
 
 ![Image](https://github.com/user-attachments/assets/03690fa5-c3b8-4265-a54c-fb54f4838d2c)
 
