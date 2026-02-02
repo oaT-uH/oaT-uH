@@ -1,5 +1,5 @@
 <p align="center">
- <img width="512" height="512" alt="sticker_1" src="https://github.com/user-attachments/assets/481ac2fc-f603-4e47-bac5-67aee1c01859" />
+<img width="1000" height="432" alt="Image" src="https://github.com/user-attachments/assets/d7774e6f-8f24-430e-8361-06fa1ab8fc39" />
 </p>
 
 <p align="center"> ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ</p>
@@ -23,7 +23,7 @@
 
 <p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
-<p align="center">( INFJ )
+
 
 <p align="center">( ꜱʜᴇ/ʜᴇʀ ) ( ᴅɴᴄ ) ( ɪɴᴛ/ᴄ+ʜ ) 
 
@@ -47,12 +47,12 @@
 
  #
 
-*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([oOob_genshin ](https://x.com/oOob_genshin)/ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ)
+*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([Hoyoverse](https://genshin-impact.fandom.com/wiki/Hu_Tao/Gallery)/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ)
 
 
-ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 11/24/2025
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
 
-![Image](https://github.com/user-attachments/assets/03690fa5-c3b8-4265-a54c-fb54f4838d2c)
+<img width="1000" height="432" alt="Image" src="https://github.com/user-attachments/assets/d4266785-fcea-4675-8fd2-82de7b5f887a" />
 
 <p align="center">
  
