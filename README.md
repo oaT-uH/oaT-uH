@@ -47,7 +47,7 @@
 
  #
 
-*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([SushiSpin](https://x.com/Sushispin_)/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ / ᴘꜰᴘ)
+*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ / ᴘꜰᴘ)
 
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
@@ -59,4 +59,4 @@
 
 </p>
 
-![Image](https://github.com/user-attachments/assets/5d61efb2-708f-4dc1-8eb6-7bac02a1f83f)
+
