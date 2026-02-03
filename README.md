@@ -53,10 +53,13 @@
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
 
 <img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/c77b527c-44c7-487e-abbe-d41b03267c83" />
-<p align="center">
+
+
+<div align="center">
  
  ![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36)
 
-</p>
+</div>
+
 
 
