@@ -50,7 +50,7 @@
 
  #
 
-*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ / ᴘꜰᴘ)
+*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ )
 
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
