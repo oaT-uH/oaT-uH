@@ -47,7 +47,7 @@
 
  #
 
-*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([SushiSpin]([https://genshin-impact.fandom.com/wiki/Hu_Tao/Gallery](https://x.com/Sushispin_))/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ / PFP)
+*ੈ✿⋆ Credits: ([Doosio](https://www.deviantart.com/doosio) / ɢɪꜰ) ([SushiSpin](https://x.com/Sushispin_)/ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ / PFP)
 
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
