@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1000" height="432" alt="Image" src="https://github.com/user-attachments/assets/d7774e6f-8f24-430e-8361-06fa1ab8fc39" />
+<img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/f45102a1-28d7-4fe2-af89-6e21728eb4cc" />
 </p>
 
 <p align="center"> ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ</p>
@@ -52,8 +52,7 @@
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
 
-<img width="1000" height="432" alt="Image" src="https://github.com/user-attachments/assets/d4266785-fcea-4675-8fd2-82de7b5f887a" />
-
+<img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/c77b527c-44c7-487e-abbe-d41b03267c83" />
 <p align="center">
  
  ![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36)
