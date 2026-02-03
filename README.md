@@ -61,7 +61,7 @@
  
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+G+H+O+S+T+S+ˎˊ-)
+![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+G+H+💔+S+T+S+ˎˊ-)
 
 </div>
 
