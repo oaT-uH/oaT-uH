@@ -50,7 +50,8 @@
 
  #
 
-*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ )
+*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ )
+
 
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
