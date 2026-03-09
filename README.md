@@ -92,9 +92,9 @@
 -ˋˏ<img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/c9036fa2-e32c-422b-807e-cf465c0df1e4" />ˎˊ- 
 
 
-<img width="1516" height="336" alt="Image" src="https://github.com/user-attachments/assets/26d64dc9-f116-4352-a26f-322e9af10fb8" />
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/26d64dc9-f116-4352-a26f-322e9af10fb8" />
 
-<img width="1516" height="336" alt="Image" src="https://github.com/user-attachments/assets/a0b3e22d-d998-4aa6-ad39-c1519d22cadb" />
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/a0b3e22d-d998-4aa6-ad39-c1519d22cadb" />
 
 </div>
 
