@@ -104,7 +104,7 @@
 
 ![Image](https://github.com/user-attachments/assets/ed2de8d0-bf38-4eeb-836c-7de639b53ad3)
 ![Image](https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05)
-![Image](https://github.com/user-attachments/assets/249cf42e-0834-4353-8367-edc22a145044)
+<img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" />
 
 </div>
 
