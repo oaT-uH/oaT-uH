@@ -75,7 +75,7 @@
 -ˋˏ<img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/727b84ef-8140-4c90-8ca1-090cf0de6f46" />ˎˊ- 
 
 
-<img width="1207" height="280" alt="Image" src="https://github.com/user-attachments/assets/90098634-861a-4ff2-84e8-2213e7c4f961" />
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/90098634-861a-4ff2-84e8-2213e7c4f961" />
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
