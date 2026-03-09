@@ -4,7 +4,7 @@
 
 <p align="center"> ꜰᴏʀ ᴘᴏɴʏ.ᴛᴏᴡɴ</p>
 
-# **<p align="center"> "One client. Two clients. Three clients! " </p>**
+# <p align="center"> " <img width="700" height="49" alt="Image" src="https://github.com/user-attachments/assets/87475881-d627-423e-9480-f6481b89e453" /> "
 
 <div align="center">
 
@@ -14,7 +14,7 @@
  
 
 
-**ɪ'ᴍ ᴀ HU TAO ᴍᴀɪɴ, ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?**
+**ɪ'ᴍ ᴀ    <img width="69" height="46" alt="Image" src="https://github.com/user-attachments/assets/7a4b7fb6-f45a-4e76-84b4-f8e3b25318d7" />   ᴍᴀɪɴ, ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?**
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
@@ -54,7 +54,7 @@
 
 
 
-ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢𝟤/𝟢𝟤/𝟤𝟢𝟤𝟨
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢3/𝟢9/𝟤𝟢𝟤𝟨
 
 <img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/c77b527c-44c7-487e-abbe-d41b03267c83" />
 
@@ -65,6 +65,38 @@
 ![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+G+H+💔+S+T+S+ˎˊ-)
 
 </div>
+
+
+
+<div align="center">
+
+┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+
+-ˋˏ<img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/727b84ef-8140-4c90-8ca1-090cf0de6f46" />ˎˊ- 
+
+
+<img width="1207" height="280" alt="Image" src="https://github.com/user-attachments/assets/90098634-861a-4ff2-84e8-2213e7c4f961" />
+
+┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+
+<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/5568eb28-61a1-4003-bde1-c525ca216290" />
+
+<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/a6b5d037-e695-4dfc-a0ce-18b02e1ab375" />
+
+<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/2f854483-0041-4280-adde-fdd4ec312d35" />
+
+<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/f93f4ab6-8b0a-4b70-94e5-efe4a669b684" />
+
+┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+
+-ˋˏ<img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/c9036fa2-e32c-422b-807e-cf465c0df1e4" />ˎˊ- 
+
+
+<img width="1825" height="280" alt="Image" src="https://github.com/user-attachments/assets/4fe459f5-0ec4-4df3-a70a-55212eef6e02" />
+
+
+</div>
+
 
 
 
