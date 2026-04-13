@@ -117,10 +117,13 @@
 
 #
 
+<div align="center">
+ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=50&duration=1555&pause=1000&color=CF3F36&background=FFD62D00&center=true&vCenter=true&width=1500&height=100&lines=%CA%8F%E1%B4%8F%E1%B4%9C'%E1%B4%A0%E1%B4%87+%CA%99%E1%B4%87%E1%B4%87%C9%B4+%E1%B4%80%CA%9F%CA%9F+%E1%B4%8F%E1%B4%A0%E1%B4%87%CA%80%2C++%EA%9C%B1%E1%B4%8F+%CA%8F%E1%B4%8F%E1%B4%9C+%E1%B4%8D%E1%B4%9C%EA%9C%B1%E1%B4%9B'%E1%B4%A0%E1%B4%87+%EA%9C%B1%E1%B4%87%E1%B4%87%C9%B4+%E1%B4%80+%CA%9F%E1%B4%8F%E1%B4%9B.+;%E1%B4%A1%CA%9C%E1%B4%87%C9%B4+%CA%8F%E1%B4%8F%E1%B4%9C'%E1%B4%A0%E1%B4%87+%C9%A2%E1%B4%8F%E1%B4%9B+%E1%B4%9B%CA%9C%E1%B4%87+%E1%B4%9B%C9%AA%E1%B4%8D%E1%B4%87%E2%80%94;%E1%B4%9B%E1%B4%87%CA%9F%CA%9F+%E1%B4%8D%E1%B4%87+%CA%8F%E1%B4%8F%E1%B4%9C%CA%80+%EA%9C%B1%E1%B4%9B%E1%B4%8F%CA%80%CA%8F%E2%80%94+;%CA%8F%E1%B4%87%E1%B4%80%3F+)](https://git.io/typing-svg)
 
 
-#
+ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
 
 
