@@ -64,19 +64,14 @@
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢3/16/𝟤𝟢𝟤𝟨
 
-</div>
+
 
 <img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/c77b527c-44c7-487e-abbe-d41b03267c83" />
 
- #
- 
-<div align="center">
- 
-![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+G+H+💔+S+T+S+ˎˊ-)
 
 </div>
 
-
+#
 
 <div align="center">
 
@@ -134,5 +129,6 @@
 
  ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
+![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+ᴄ+ʟ+ɪ+ᴇ+ɴ+ᴛ+ꜱˎˊ-)
 
-
+</div>
