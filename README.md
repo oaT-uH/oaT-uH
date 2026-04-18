@@ -115,8 +115,10 @@
 
 <div align="center">
 
-![Image](https://github.com/user-attachments/assets/ed2de8d0-bf38-4eeb-836c-7de639b53ad3)
-![Image](https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05)
+<img src="https://github.com/user-attachments/assets/ed2de8d0-bf38-4eeb-836c-7de639b53ad3" width="300">
+
+<img src="https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05" width="300">
+
 <img src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" width="150">
 </div>
 
