@@ -22,7 +22,7 @@
  
 
 
-**ɪ'ᴍ ᴀ    <img src="https://github.com/user-attachments/assets/7a4b7fb6-f45a-4e76-84b4-f8e3b25318d7" style="max-width: 100%; height: auto;">
+**ɪ'ᴍ ᴀ    <img src="https://github.com/user-attachments/assets/7a4b7fb6-f45a-4e76-84b4-f8e3b25318d7" width="55">
    ᴍᴀɪɴ, ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?**
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
@@ -115,8 +115,7 @@
 
 ![Image](https://github.com/user-attachments/assets/ed2de8d0-bf38-4eeb-836c-7de639b53ad3)
 ![Image](https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05)
-<img src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" style="max-width: 100%; height: auto;">
-
+<img src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" width="200">
 </div>
 
 #
