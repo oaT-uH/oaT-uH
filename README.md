@@ -58,11 +58,13 @@
 
  #
 
+<div align="center">
+
 *ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) ([ꜱᴜᴍᴇꜱ ᴍᴜꜱɪᴄ](https://youtu.be/hj5z8WIhOKI) / ᴍᴜꜱɪᴄ )
 
-
-
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢3/16/𝟤𝟢𝟤𝟨
+
+</div>
 
 <img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/c77b527c-44c7-487e-abbe-d41b03267c83" />
 
