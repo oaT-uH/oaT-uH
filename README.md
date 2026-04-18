@@ -11,7 +11,8 @@
 
 
 
-# <p align="center"> " <img width="700" height="49" alt="Image" src="https://github.com/user-attachments/assets/87475881-d627-423e-9480-f6481b89e453" /> "
+# <p align="center"> <img src="https://github.com/user-attachments/assets/87475881-d627-423e-9480-f6481b89e453" style="max-width: 100%; height: auto;">
+ 
 
 <div align="center">
 
@@ -21,11 +22,12 @@
  
 
 
-**ɪ'ᴍ ᴀ    <img width="69" height="46" alt="Image" src="https://github.com/user-attachments/assets/7a4b7fb6-f45a-4e76-84b4-f8e3b25318d7" />   ᴍᴀɪɴ, ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?**
+**ɪ'ᴍ ᴀ    <img src="https://github.com/user-attachments/assets/7a4b7fb6-f45a-4e76-84b4-f8e3b25318d7" style="max-width: 100%; height: auto;">
+   ᴍᴀɪɴ, ᴄᴀɴ'ᴛ ʏᴏᴜ ᴛᴇʟʟ?**
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
-<img src="https://github.com/user-attachments/assets/0d3c65a3-49a9-4996-ac24-3f9c651810bd" width="300" height="300">
+<img src="https://github.com/user-attachments/assets/0d3c65a3-49a9-4996-ac24-3f9c651810bd" style="max-width: 100%; height: auto;">
 
 
 
@@ -79,29 +81,32 @@
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
--ˋˏ<img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/727b84ef-8140-4c90-8ca1-090cf0de6f46" />ˎˊ- 
+-ˋˏ<img src="https://github.com/user-attachments/assets/727b84ef-8140-4c90-8ca1-090cf0de6f46" style="max-width: 100%; height: auto;">
+ˎˊ- 
 
 
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/90098634-861a-4ff2-84e8-2213e7c4f961" />
-
-┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
-
-<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/672cf437-99a7-4365-a32e-03f66cf80984" />
-
-<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/3dfdeb51-904c-4ff3-9e2c-645a3fba50a2" />
-
-<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/1f336d2e-04be-4e26-93de-6de738f74415" />
-
-<img width="450" height="280" alt="Image" src="https://github.com/user-attachments/assets/659ade20-e4b2-4056-8111-2f15456cc2a8" />
+<img src="https://github.com/user-attachments/assets/90098634-861a-4ff2-84e8-2213e7c4f961" style="max-width: 100%; height: auto;">
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
--ˋˏ<img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/c9036fa2-e32c-422b-807e-cf465c0df1e4" />ˎˊ- 
+<img src="https://github.com/user-attachments/assets/7dbf9432-ad42-4018-b53c-381321b7ace0" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/684a362b-8ac5-4a70-88f1-bf10108c42d9" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/a7fe5e34-2fbd-427d-ac79-223676684dde" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/3ef90ec8-d562-45b8-909a-d69ce7ec5e1e" style="max-width: 100%; height: auto;">
 
 
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/26d64dc9-f116-4352-a26f-322e9af10fb8" />
+┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/a0b3e22d-d998-4aa6-ad39-c1519d22cadb" />
+-ˋˏ<img  src="https://github.com/user-attachments/assets/c9036fa2-e32c-422b-807e-cf465c0df1e4" style="max-width: 100%; height: auto;">
+ˎˊ- 
+
+
+<img src="https://github.com/user-attachments/assets/26d64dc9-f116-4352-a26f-322e9af10fb8" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/a0b3e22d-d998-4aa6-ad39-c1519d22cadb" style="max-width: 100%; height: auto;">
 
 </div>
 
@@ -111,7 +116,7 @@
 
 ![Image](https://github.com/user-attachments/assets/ed2de8d0-bf38-4eeb-836c-7de639b53ad3)
 ![Image](https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05)
-<img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" />
+<img src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" style="max-width: 100%; height: auto;">
 
 </div>
 
