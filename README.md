@@ -27,8 +27,7 @@
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
-<img src="https://github.com/user-attachments/assets/0d3c65a3-49a9-4996-ac24-3f9c651810bd" style="max-width: 100%; height: auto;">
-
+<img src="https://github.com/user-attachments/assets/0d3c65a3-49a9-4996-ac24-3f9c651810bd" width="400">
 
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
