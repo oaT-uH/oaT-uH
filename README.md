@@ -88,13 +88,15 @@
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
-<img src="https://github.com/user-attachments/assets/7dbf9432-ad42-4018-b53c-381321b7ace0" style="max-width: 100%; height: auto;">
 
-<img src="https://github.com/user-attachments/assets/684a362b-8ac5-4a70-88f1-bf10108c42d9" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/7dbf9432-ad42-4018-b53c-381321b7ace0" width="800">
 
-<img src="https://github.com/user-attachments/assets/a7fe5e34-2fbd-427d-ac79-223676684dde" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/684a362b-8ac5-4a70-88f1-bf10108c42d9" width="800">
 
-<img src="https://github.com/user-attachments/assets/3ef90ec8-d562-45b8-909a-d69ce7ec5e1e" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/a7fe5e34-2fbd-427d-ac79-223676684dde" width="800">
+
+<img src="https://github.com/user-attachments/assets/3ef90ec8-d562-45b8-909a-d69ce7ec5e1e" width="800">
+
 
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
