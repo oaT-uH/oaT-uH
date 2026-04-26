@@ -58,7 +58,7 @@
 
 <div align="center">
 
-*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) 
+*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) ([ʜᴏʏᴏᴠᴇʀꜱᴇ](https://genshin-impact.fandom.com/wiki/Hu_Tao/Gallery) / ʜᴏʏᴏ-ᴀꜱꜱᴇᴛꜱ ) 
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢3/16/𝟤𝟢𝟤𝟨
 
