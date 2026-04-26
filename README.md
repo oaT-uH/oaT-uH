@@ -58,7 +58,7 @@
 
 <div align="center">
 
-*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) ([ʙɪʙɪᴢʙʙɪʙɪ](https://x.com/bibizbbibi) / ᴠɪᴅᴇᴏ ʙᴇʟᴏᴡ )
+*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) 
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢3/16/𝟤𝟢𝟤𝟨
 
