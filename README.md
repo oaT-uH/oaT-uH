@@ -159,9 +159,11 @@
 
 . . .
 
+ɪᴅᴋ ʜᴏᴡ ᴛᴏ ᴇɴᴅ ᴛʜɪꜱ ꜱᴏ—ʜᴀᴠᴇ ᴀ ᴅɪꜱᴛʀᴀᴄᴛɪᴏɴ.
+
 https://github.com/user-attachments/assets/dc77902d-aedc-453d-939d-ee3223d3af6c
 
-ɪᴅᴋ ʜᴏᴡ ᴛᴏ ᴇɴᴅ ᴛʜɪꜱ ꜱᴏ—ʜᴀᴠᴇ ᴀ ᴅɪꜱᴛʀᴀᴄᴛɪᴏɴ.
+
 
 </details>
 
