@@ -139,7 +139,7 @@
 <div align="center">
 
 <details>
-<summary> ꜱᴛʀᴀᴡ </summary>
+<summary> ꜱᴛʀᴀᴡ ( x-ᴛʀᴀ ɪɴꜰᴏ ) </summary>
 
 -ˋˏ ʏᴏᴜ'ᴠᴇ ꜱᴄʀᴏʟʟᴇᴅ ᴛʜɪꜱ ꜰᴀʀ, ᴡᴏᴡ ʏᴏᴜ ᴀʀᴇ—ɴᴏꜱʏ—ᴊᴋ ˎˊ- 
 
