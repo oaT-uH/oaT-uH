@@ -1,5 +1,4 @@
-[(Play)_(Unmute)_.webm](https://github.com/user-attachments/assets/0e87ff5a-c81a-4032-8f88-462c210b092f)
-
+https://github.com/user-attachments/assets/64a1b3b1-5d73-448e-b971-13a8f7106f18
 
 <p align="center">
 <img width="1121" height="408" alt="Image" src="https://github.com/user-attachments/assets/f45102a1-28d7-4fe2-af89-6e21728eb4cc" />
@@ -60,7 +59,7 @@
 
 <div align="center">
 
-*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) ([ꜱᴜᴍᴇꜱ ᴍᴜꜱɪᴄ](https://youtu.be/hj5z8WIhOKI) / ᴍᴜꜱɪᴄ )
+*ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) ([ʙɪʙɪᴢʙʙɪʙɪ](https://x.com/bibizbbibi) /ᴠɪᴅᴇᴏ)
 
 ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢3/16/𝟤𝟢𝟤𝟨
 
