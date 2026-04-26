@@ -141,7 +141,12 @@
 <details>
 <summary> ꜱᴛʀᴀᴡ ( x-ᴛʀᴀ ɪɴꜰᴏ ) </summary>
 
+
 -ˋˏ ʏᴏᴜ'ᴠᴇ ꜱᴄʀᴏʟʟᴇᴅ ᴛʜɪꜱ ꜰᴀʀ, ᴡᴏᴡ ʏᴏᴜ ᴀʀᴇ—ɴᴏꜱʏ—ᴊᴋ ˎˊ- 
+
+
+<img src="https://github.com/user-attachments/assets/6ea059d2-e233-47a6-8718-9172f4f96b2f" width="300">
+
 
 ɪᴍ—ᴡʜɪᴛᴇ-ᴡᴀꜱʜᴇᴅ ᴀꜱɪᴀɴ. ꜰɪʟɪᴘɪɴᴀ.
 
