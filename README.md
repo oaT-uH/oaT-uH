@@ -136,6 +136,8 @@
 
 #
 
+<div align="center">
+
 <details>
 <summary> ꜱᴛʀᴀᴡ </summary>
 
