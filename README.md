@@ -176,7 +176,18 @@ https://github.com/user-attachments/assets/dc77902d-aedc-453d-939d-ee3223d3af6c
 
 
 <details>
-<summary> ᴀʙᴏᴜᴛ ᴍᴇ: ɢᴇɴꜱʜɪɴ ɢʀɪᴅ </summary>
-<img src="https://github.com/user-attachments/assets/e6587397-6e4d-4aaf-b7c0-67f0e9d20722"  width="800">
+
+ <summary> ᴀʙᴏᴜᴛ ᴍᴇ: ɢᴇɴꜱʜɪɴ ɢʀɪᴅ </summary>
+<img src="https://github.com/user-attachments/assets/e6587397-6e4d-4aaf-b7c0-67f0e9d20722"  width="650">
+
+</details>
+
+<details>
+
+ <summary> ᴀʙᴏᴜᴛ ᴍᴇ: ᴀʀᴋɴɪɢʜᴛꜱ ɢʀɪᴅ </summary>
+<img src="https://github.com/user-attachments/assets/da178a4a-41a3-42c5-a214-0e575612088e"  width="650">
+
+</details>
+
 
 </div>
