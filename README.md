@@ -185,7 +185,7 @@ https://github.com/user-attachments/assets/dc77902d-aedc-453d-939d-ee3223d3af6c
 <details>
 
  <summary> ᴀʙᴏᴜᴛ ᴍᴇ: ᴀʀᴋɴɪɢʜᴛꜱ ɢʀɪᴅ </summary>
-<img src="https://github.com/user-attachments/assets/fa86a18b-d774-4e64-9101-e99da0587343"  width="650">
+<img src="https://github.com/user-attachments/assets/b461440a-223c-4fa0-ac36-2d573d127847"  width="650">
 
 </details>
 
