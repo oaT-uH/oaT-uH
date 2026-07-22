@@ -62,7 +62,7 @@
 
 *ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴄʀᴏᴘᴘᴇᴅ-ᴀʀᴛ ʙᴇʟᴏᴡ ᴀɴᴅ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ ) ([ʜᴏʏᴏᴠᴇʀꜱᴇ](https://genshin-impact.fandom.com/wiki/Hu_Tao/Gallery) / ʜᴏʏᴏ-ᴀꜱꜱᴇᴛꜱ ) 
 
-ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ: 𝟢4/26/𝟤𝟢𝟤𝟨
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇᴅ: 𝟢4/26/𝟤𝟢𝟤𝟨
 
 
 
@@ -91,7 +91,7 @@
 
 <img src="https://github.com/user-attachments/assets/684a362b-8ac5-4a70-88f1-bf10108c42d9" width="500">
 
-<img src="https://github.com/user-attachments/assets/a7fe5e34-2fbd-427d-ac79-223676684dde" width="500">
+<img src="https://github.com/user-attachments/assets/defbe589-23d2-4047-8dd6-c909b138d92a" width="500">
 
 <img src="https://github.com/user-attachments/assets/3ef90ec8-d562-45b8-909a-d69ce7ec5e1e" width="500">
 
@@ -103,9 +103,13 @@
 ˎˊ- 
 
 
-<img src="https://github.com/user-attachments/assets/26d64dc9-f116-4352-a26f-322e9af10fb8" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/766f7aac-1dab-47f1-88df-1c2fc6fda7ef" style="max-width: 100%; height: auto;">
 
-<img src="https://github.com/user-attachments/assets/a0b3e22d-d998-4aa6-ad39-c1519d22cadb" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/4b799e38-b250-44d8-b6c3-fe3aac70edaf" style="max-width: 100%; height: auto;">
+
+
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇᴅ : 𝟢𝟩/𝟤𝟤/𝟤𝟢𝟤𝟨
+
 
 </div>
 
