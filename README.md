@@ -179,6 +179,20 @@
 
 
 
+
+ 
+</details>
+
+</div>
+
+<div align="center">
+<details>
+<summary> ( xX-ᴛʀᴀ ʙᴏɴᴜꜱ ɪɴꜰᴏ ) </summary>
+
+ <img src="https://github.com/user-attachments/assets/2f5d6337-5bd1-4ce4-8932-f03b92f28a5a" width="800">
+<img src="https://github.com/user-attachments/assets/bf9bc0ee-f797-488e-a634-a06dac48fc5d" width="800">
+
+
 </details>
 
 </div>
