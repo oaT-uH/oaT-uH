@@ -193,7 +193,7 @@
   
  -ˋˏ ┈ ┈ ┈ ˎˊ-
   
-<img src="https://github.com/user-attachments/assets/bf9bc0ee-f797-488e-a634-a06dac48fc5d" width="800">
+<img src="https://github.com/user-attachments/assets/d45f764d-607e-4c25-b8e7-3a21bc94b967" width="800">
 
 
 </details>
