@@ -414,6 +414,8 @@
 
  -ˋˏ ┈ ┈ ┈ ˎˊ-
 
+#
+
 𝗕𝗢𝗡𝗨𝗦
 
 ᴍᴀᴋɪɴɢ ( 𝐋𝐚𝐲𝐞𝐫 𝟏 ) ᴀ ᴍᴇᴅɪᴜᴍ ꜱʜᴀᴅᴇ—ɢɪᴠᴇꜱ ʏᴏᴜʀ ᴇʏᴇꜱ—ᴍᴏʀᴇ ᴅᴇᴘᴛʜ ᴛᴏ ᴛʜᴇᴍ.
@@ -463,6 +465,8 @@
 
 -ˋˏ ┈ ┈ ┈ ˎˊ-
 
+#
+
 𝗕𝗢𝗡𝗨𝗦
 
 ᴍᴀᴋɪɴɢ ( 𝐋𝐚𝐲𝐞𝐫 𝟏 ) ᴀ ᴍᴇᴅɪᴜᴍ ꜱʜᴀᴅᴇ—ɢɪᴠᴇꜱ ʏᴏᴜʀ ᴇʏᴇꜱ—ᴍᴏʀᴇ ᴅᴇᴘᴛʜ ᴛᴏ ᴛʜᴇᴍ.
@@ -472,12 +476,12 @@
 
 <img src="https://github.com/user-attachments/assets/1fa371df-ed73-4667-a5b2-b54831b446a4"       width="400">
 
--ˋˏ ┈ ┈ ┈ ˎˊ-
-
-ᴍᴏᴠɪɴɢ ( 𝐋𝐚𝐲𝐞𝐫 𝟒 ) ᴀʙᴏᴠᴇ ᴡɪʟʟ ɢɪᴠᴇ ʏᴏᴜ ᴛʜᴇꜱᴇ ʀᴇꜱᴜʟᴛꜱ: ᴡʜɪᴄʜ ɪ ᴛʜɪɴᴋ ᴀʟꜱᴏ ʟᴏᴏᴋꜱ ɢᴏᴏᴅ!
+#
 
 <img src="https://github.com/user-attachments/assets/89d273ae-fee5-4fc9-9808-ea330e2f9364"        width="400">
 <img src="https://github.com/user-attachments/assets/1fd7398e-f6fb-415b-b293-3092aed1db83"        width="400">
+
+ᴍᴏᴠɪɴɢ ( 𝐋𝐚𝐲𝐞𝐫 𝟒 ) ᴀʙᴏᴠᴇ ᴡɪʟʟ ɢɪᴠᴇ ʏᴏᴜ ᴛʜᴇꜱᴇ ʀᴇꜱᴜʟᴛꜱ: ᴡʜɪᴄʜ ɪ ᴛʜɪɴᴋ ᴀʟꜱᴏ ʟᴏᴏᴋꜱ ɢᴏᴏᴅ!
 
 <img src="https://github.com/user-attachments/assets/c714f574-cc63-4f9d-b75f-45d63e408e02"       width="400">
 
@@ -510,6 +514,8 @@
 ( 𝐋𝐚𝐲𝐞𝐫 𝟏 ) ᴡɪʟʟ ʙᴇ ᴛʜᴇ ʟɪɢʜᴛᴇʀ ᴘᴀʀᴛ.
 
 <img src="https://github.com/user-attachments/assets/8ee61bbb-119f-4621-a67d-cc3539b84c8a"       width="400">
+
+#
 
 𝗕𝗢𝗡𝗨𝗦
 
