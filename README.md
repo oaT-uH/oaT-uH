@@ -119,7 +119,7 @@
 
  
 <details>
-<summary>   <img src="https://github.com/user-attachments/assets/017b36e7-3d67-452a-a853-afcce751209d" width="69"> <img src="https://github.com/user-attachments/assets/20b84896-64d0-4afb-8d2c-dde3342589f4" width="69"> </summary>
+<summary>   <img src="https://github.com/user-attachments/assets/017b36e7-3d67-452a-a853-afcce751209d" width="69"> <img src="https://github.com/user-attachments/assets/35dec392-704d-4d8d-9c7d-44ac9ad9f664"  width="65"> </summary>
 
 <div align="center">
 
@@ -160,93 +160,8 @@
 
 </div>
 
- 
+ </details>
 
-</details>
-
-</div>
-
-
-
-<div align="center">
-
-<details>
-<summary>   <img src="https://github.com/user-attachments/assets/8a735c0f-5212-417b-b4fa-d835a7b876c0"  width="69"> <img src="https://github.com/user-attachments/assets/35dec392-704d-4d8d-9c7d-44ac9ad9f664"  width="69"> </summary>
-
-
--ˋˏ ʏᴏᴜ'ᴠᴇ ꜱᴄʀᴏʟʟᴇᴅ ᴛʜɪꜱ ꜰᴀʀ, ᴡᴏᴡ ʏᴏᴜ ᴀʀᴇ—ɴᴏꜱʏ—ᴊᴋ ˎˊ- 
-
-
-<img src="https://github.com/user-attachments/assets/6ea059d2-e233-47a6-8718-9172f4f96b2f" width="300">
-<img src="https://github.com/user-attachments/assets/438db9cd-600f-4ff0-9047-c440820e5690" width="300">
-
-ʏᴏᴜ ᴄᴀɴ ᴀᴅᴅʀᴇꜱꜱ ᴍᴇ ʙʏ ᴇɪᴛʜᴇʀ—ꜱᴛʀᴀᴡ ᴏʀ ꜱᴇʟᴀ.
-
-ɪᴍ—ᴡʜɪᴛᴇ-ᴡᴀꜱʜᴇᴅ ᴀꜱɪᴀɴ. ꜰɪʟɪᴘɪɴᴀ.
-
--ˋˏɴᴀɪɪɴᴛɪɴᴅɪʜᴀɴ ᴋᴏ ᴀɴɢ ᴛᴀɢᴀʟᴏɢ... ᴘᴇʀᴏ ʜɪɴᴅɪ ᴀᴋᴏ ꜰʟᴜᴇɴᴛ ᴀɴʏᴍᴏʀᴇ... ɪᴍ ꜱᴏʙʙɪɴɢ...ˎˊ-
-
-ɪ ᴘʟᴀʏ—ɢᴇɴꜱʜɪɴ ᴀɴᴅ ᴀʀᴋɴɪɢʜᴛꜱ, ᴍᴏꜱᴛʟʏ.
-
-ɪ ʟɪꜱᴛᴇɴ—ᴛᴏ ʙᴀꜱɪᴄᴀʟʟʏ ᴀɴʏᴛʜɪɴɢ.
-ʟɪᴋᴇ ɢᴀᴍᴇ ᴀɴᴅ ᴍᴏᴠɪᴇ ꜱᴏᴜɴᴅᴛʀᴀᴄᴋꜱ—ɪ ᴀʟꜱᴏ ʟɪꜱᴛᴇɴ ᴛᴏ ᴍᴀɪɴꜱᴛʀᴇᴀᴍ ᴀɴᴅ ᴄʟᴀꜱꜱɪᴄꜱ ʙᴀꜱᴇᴅ ᴏɴ ᴍʏ ᴍᴏᴏᴅ.
-
-ɪ ᴡᴀᴛᴄʜ—ᴀɴɪᴍᴇ ( ᴛʜᴏᴜɢʜ ɴᴏᴛ ᴀꜱ ᴍᴜᴄʜ ᴀꜱ ɪ ᴜꜱᴇᴅ ᴛᴏ ) ʟɪᴋᴇ: ꜱᴘʏxꜰᴀᴍɪʟʏ, ɴᴏɴ ɴᴏɴ ʙɪʏᴏʀɪ, ᴋᴏɴᴏꜱᴜʙᴀ, ᴅᴇᴍᴏɴ ꜱʟᴀʏᴇʀ, ʜᴏᴜꜱᴇᴋɪ ɴᴏ ᴋᴜɴɪ, ʙʟᴏᴏᴍ ɪɴᴛᴏ ʏᴏᴜ, ᴋ-ᴏɴ, ꜱʟᴇᴇᴘʏ ᴘʀɪɴᴄᴇꜱꜱ ɪɴ ᴀ ᴅᴇᴍᴏɴ ᴄᴀꜱᴛʟᴇ, ᴄᴏꜱᴍɪᴄ ᴘʀɪɴᴄᴇꜱꜱ ᴋᴀɢᴜʏᴀ, ᴍᴀɢɪᴄᴀ ᴍᴀᴅᴏᴋᴀ, ᴛʜᴇʀᴇ'ꜱ ɴᴏ ꜰʀᴇᴀᴋɪɴɢ ᴡᴀʏ ɪ'ʟʟ ʙᴇ ʏᴏᴜʀ ʟᴏᴠᴇʀ! ᴜɴʟᴇꜱꜱ..., ᴍɪꜱꜱ ᴋᴏʙᴀʏᴀꜱʜɪ'ꜱ ᴅʀᴀɢᴏɴ ᴍᴀɪᴅ, ꜰʀɪᴇʀᴇɴ, ᴅᴜɴɢᴇᴏɴ ᴍᴇꜱʜɪ, ꜱᴏᴜʟ ᴇᴀᴛᴇʀ, ᴄʜᴀɪɴꜱᴀᴡ ᴍᴀɴ, ᴜᴍᴀᴍᴜꜱᴜᴍᴇ, ʟʏᴄᴏʀɪꜱ ʀᴇᴄᴏɪʟ, ᴏᴜʀᴀɴ ʜɪɢʜ ꜱᴄʜᴏᴏʟ ʜᴏꜱᴛ ᴄʟᴜʙ, ꜰᴏᴏᴅ ᴡᴀʀꜱ, ʙᴏᴄᴄʜɪ ᴛʜᴇ ʀᴏᴄᴋ!, ɪᴍ ɪɴ ʟᴏᴠᴇ ᴡɪᴛʜ ᴛʜᴇ ᴠɪʟʟᴀɪɴᴇꜱꜱ, ᴇᴛᴄ... 
-
-ɪ ʟɪᴋᴇ—ᴛᴏ ᴄᴏɴꜱᴜᴍᴇ ᴛʜᴇꜱᴇ ᴄᴏɴᴛᴇɴᴛꜱ ᴏɴʟɪɴᴇ ( ʙᴇꜱɪᴅᴇꜱ ᴛᴀᴏ ) : ᴅᴏᴋɪ-ᴅᴏᴋɪ ʟɪᴛᴇʀᴀᴛᴜʀᴇ ᴄʟᴜʙ, ᴀʀᴋɴɪɢʜᴛꜱ: ᴇɴᴅꜰɪᴇʟᴅ, ʜᴏɴᴋᴀɪ ꜱᴛᴀʀ ʀᴀɪʟ, ᴢᴇɴʟᴇꜱꜱ ᴢᴏɴᴇ ᴢᴇʀᴏ, ᴀʟɪᴇɴ ꜱᴛᴀɢᴇ, ᴢᴏᴍʙɪᴇ ꜱᴛᴀɢᴇ, ᴀʀᴄᴀɴᴇ, ᴍᴀᴍᴀᴍᴏᴏ, ɴᴇᴡ ᴊᴇᴀɴꜱ, ᴀᴇꜱᴘᴀ, ᴄʜɪɪᴋᴀᴡᴀ, ᴇᴛᴄ... 
-
-ɪ ᴅʀᴀᴡ—ꜱᴏᴍᴇᴛɪᴍᴇꜱ, ɴᴏᴛ ᴀꜱ ᴍᴜᴄʜ ᴀꜱ ʙᴇꜰᴏʀᴇ, ʙᴜᴛ ɪ ꜱᴛɪʟʟ ʟᴏᴠᴇ ᴛʜᴇ ᴄʀᴀꜰᴛ! ( ᴍᴀʏʙᴇ ɪꜰ ᴡᴇ ᴀʀᴇ ᴄʟᴏꜱᴇ—ɪ'ʟʟ ᴅᴏᴏᴅʟᴇ ꜱᴏᴍᴇᴛʜɪɴɢ ꜰᴏʀ ʏᴏᴜ ꨄ︎ )
-
-
-
-. . .
-
-ɪᴅᴋ ʜᴏᴡ ᴛᴏ ᴇɴᴅ ᴛʜɪꜱ ꜱᴏ—
-
-<img src="https://github.com/user-attachments/assets/f6ad7c60-88b0-4ba4-8b92-c79292479273" width="300">
-
-ꜱᴀʏᴏɴᴀʀᴀ!
-. . .
-
-
-
-
- 
-</details>
-
-</div>
-
-<div align="center">
-<details>
-<summary>   <img src="https://github.com/user-attachments/assets/c7a33517-b6b8-469e-9f3f-76155c247540" width="70"> <img src="https://github.com/user-attachments/assets/20b84896-64d0-4afb-8d2c-dde3342589f4" width="70"> </summary>
-
- -ˋˏ ɪ ʟᴏᴠᴇ ᴍᴇ ᴀ ɢᴏᴏᴅ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴅᴇꜱɪɢɴ—ɴᴏ ᴏɴᴇ ʙᴇᴀᴛꜱ ᴍʏ ꜰᴜɴ—ᴅɪʀᴇᴄᴛᴏʀ ᴛʜᴏᴜɢʜ ˎˊ-
-
- 
- 
- <img src="https://github.com/user-attachments/assets/2f5d6337-5bd1-4ce4-8932-f03b92f28a5a" width="800">
-  
- -ˋˏ ┈ ┈ ┈ ˎˊ-
-  
-<img src="https://github.com/user-attachments/assets/d45f764d-607e-4c25-b8e7-3a21bc94b967" width="800">
-
- -ˋˏ ┈ ┈ ┈ ˎˊ-
-
-<img src="https://github.com/user-attachments/assets/1becf103-6a2c-4561-b49f-dad8cfd44c87" width="650">
-
- -ˋˏ ┈ ┈ ┈ ˎˊ-
-
- <img src="https://github.com/user-attachments/assets/ee03cb65-49fc-40af-b094-b2779c97954a"  width="800">
-
- -ˋˏ ┈ ┈ ┈ ˎˊ-
-
- <img src="https://github.com/user-attachments/assets/1ec109f5-8af7-4437-979c-a0d7a612838a"  width="800">
-
- -ˋˏ ┈ ┈ ┈ ˎˊ-
-
- 
-
-</details>
 
 
 -ˋˏ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ˎˊ-
