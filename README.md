@@ -452,7 +452,7 @@
 
 𝐓𝐇𝐈𝐑𝐃 𝐕𝐀𝐑𝐈𝐀𝐍𝐓 : ɪ ᴄᴀʟʟ ᴛʜɪꜱ ᴛʜᴇ ꜱᴜꜱ ʟᴏᴏᴋɪɴɢ ᴇʏᴇꜱ.
 
-<img src="https://github.com/user-attachments/assets/e003e4a7-9277-468a-bb48-b03447859271"       width="400">
+<img src="https://github.com/user-attachments/assets/6c792ed3-17f9-4a4c-a505-5094634cb9ed"       width="400">
 
 <details>
 <summary>ᴄʟɪᴄᴋ / ᴛᴀᴘ : ᴛᴏ ʟᴇᴀʀɴ</summary>
@@ -469,24 +469,24 @@
 
 ᴛʜᴇꜱᴇ ʟᴀʏᴇʀꜱ, ᴡɪʟʟ ʙᴇ ᴛʜᴇ ᴄᴏʟᴏʀꜰᴜʟ ᴘᴀʀᴛꜱ ᴏꜰ ʏᴏᴜʀ ᴇʏᴇꜱ.
 
+<img src="https://github.com/user-attachments/assets/76c73cf1-8431-4e72-988c-afc1cf9ac00a"       width="400">
+
 ( 𝐋𝐚𝐲𝐞𝐫 𝟏 ) ᴡɪʟʟ ʙᴇ ᴛʜᴇ ʟɪɢʜᴛᴇʀ ᴘᴀʀᴛ.
 
-<img src="https://github.com/user-attachments/assets/0f1d04e1-181a-4352-9eb1-2be32667fa94"       width="400">
+<img src="https://github.com/user-attachments/assets/8ee61bbb-119f-4621-a67d-cc3539b84c8a"       width="400">
 
 𝗕𝗢𝗡𝗨𝗦
 
 -ˋˏ ┈ ┈ ┈ ˎˊ-
 
-( 𝐋𝐚𝐲𝐞𝐫 𝟐 , 𝐋𝐚𝐲𝐞𝐫 𝟑, 𝐋𝐚𝐲𝐞𝐫 𝟒 )
-
-ᴘʟᴀʏɪɴɢ ᴀʀᴏᴜɴᴅ ᴡɪᴛʜ ᴛʜᴇꜱᴇ ʟᴀʏᴇʀꜱ ᴄᴀɴ ɢɪᴠᴇ ᴛʜᴇꜱᴇ ʀᴇꜱᴜʟᴛꜱ.
+ᴘʟᴀʏɪɴɢ ᴀʀᴏᴜɴᴅ ᴡɪᴛʜ ᴛʜᴇ ʟᴀʏᴇʀꜱ—ᴀɴᴅ ᴀʟꜱᴏ ᴜꜱɪɴɢ ᴅɪꜰꜰᴇʀᴇɴᴛ ᴇʏᴇꜱ ᴏɴ ᴇᴀᴄʜ ꜱɪᴅᴇ ᴡɪʟʟ ʜᴇʟᴘ ʏᴏᴜʀ ᴘᴏɴʏ ʟᴏᴏᴋ ʟᴇꜱꜱ ꜱᴛɪꜰꜰ—ʟᴇꜱꜱ ʀᴏʙᴏᴛɪᴄ.
 
 ɪ ʀᴇᴄᴏᴍᴍᴇɴᴅ ᴇxᴘᴇʀɪᴍᴇɴᴛɪɴɢ ᴡɪᴛʜ ᴛʜᴇᴍ ᴀɴᴅ ꜰɪɴᴅɪɴɢ ʏᴏᴜʀ ᴘɪᴄᴋ!
 
-<img src="https://github.com/user-attachments/assets/fa7876dd-5d28-4946-afd5-b38f19796004"      width="400">
+<img src="https://github.com/user-attachments/assets/9939675d-ac80-4118-8d3d-0fb05eb2e6ac"      width="400">
 
 
-<img src="https://github.com/user-attachments/assets/beba549f-077b-4da9-953b-abd5213ac856"      width="400">
+<img src="https://github.com/user-attachments/assets/25306b82-23ab-422c-9527-92f8e8c697c3"      width="400">
 
 </details>
 
