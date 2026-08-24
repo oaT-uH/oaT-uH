@@ -206,6 +206,10 @@
 <details>
 <summary>   <img src="https://github.com/user-attachments/assets/35dec392-704d-4d8d-9c7d-44ac9ad9f664"  width="69"> </summary>
 
+ -ˋˏ ɪ ʟᴏᴠᴇ ᴍᴇ ᴀ ɢᴏᴏᴅ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴅᴇꜱɪɢɴ—ɴᴏ ᴏɴᴇ ʙᴇᴀᴛꜱ ᴍʏ ꜰᴜɴ—ᴅɪʀᴇᴄᴛᴏʀ ᴛʜᴏᴜɢʜ ˎˊ-
+
+ 
+ 
  <img src="https://github.com/user-attachments/assets/2f5d6337-5bd1-4ce4-8932-f03b92f28a5a" width="800">
   
  -ˋˏ ┈ ┈ ┈ ˎˊ-
