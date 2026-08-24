@@ -115,11 +115,12 @@
  
 -ˋˏ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ˎˊ-
 
- -ˋˏᴄʟɪᴄᴋ/ᴛᴀᴘ ► ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏˎˊ-
+
 
  
 <details>
 <summary>   <img src="https://github.com/user-attachments/assets/017b36e7-3d67-452a-a853-afcce751209d" width="69"> <img src="https://github.com/user-attachments/assets/35dec392-704d-4d8d-9c7d-44ac9ad9f664"  width="65"> </summary>
+
 
 <div align="center">
 
@@ -160,7 +161,9 @@
 
 </div>
 
- </details>
+</details>
+
+ -ˋˏᴄʟɪᴄᴋ/ᴛᴀᴘ ► ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏˎˊ-
 
 
 
