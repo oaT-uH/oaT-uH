@@ -76,6 +76,34 @@
 
 <div align="center">
 
+<img src="https://github.com/user-attachments/assets/0c0fcfdd-65bb-4349-ab82-5d4107a99bd6" width="150">
+
+<img src="https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05" width="300">
+
+<img src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" width="150">
+</div>
+
+#
+
+<div align="center">
+ 
+-ˋˏ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ˎˊ-
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=50&duration=1555&pause=1000&color=CF3F36&background=FFD62D00&center=true&vCenter=true&width=1500&height=100&lines=%CA%8F%E1%B4%8F%E1%B4%9C'%E1%B4%A0%E1%B4%87+%CA%99%E1%B4%87%E1%B4%87%C9%B4+%E1%B4%80%CA%9F%CA%9F+%E1%B4%8F%E1%B4%A0%E1%B4%87%CA%80%2C++%EA%9C%B1%E1%B4%8F+%CA%8F%E1%B4%8F%E1%B4%9C+%E1%B4%8D%E1%B4%9C%EA%9C%B1%E1%B4%9B'%E1%B4%A0%E1%B4%87+%EA%9C%B1%E1%B4%87%E1%B4%87%C9%B4+%E1%B4%80+%CA%9F%E1%B4%8F%E1%B4%9B.+;%E1%B4%A1%CA%9C%E1%B4%87%C9%B4+%CA%8F%E1%B4%8F%E1%B4%9C'%E1%B4%A0%E1%B4%87+%C9%A2%E1%B4%8F%E1%B4%9B+%E1%B4%9B%CA%9C%E1%B4%87+%E1%B4%9B%C9%AA%E1%B4%8D%E1%B4%87%E2%80%94;%E1%B4%9B%E1%B4%87%CA%9F%CA%9F+%E1%B4%8D%E1%B4%87+%CA%8F%E1%B4%8F%E1%B4%9C%CA%80+%EA%9C%B1%E1%B4%9B%E1%B4%8F%CA%80%CA%8F%E2%80%94+;%CA%8F%E1%B4%87%E1%B4%80%3F+)](https://git.io/typing-svg)
+
+
+-ˋˏ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ˎˊ-
+
+![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+ᴄ+ʟ+ɪ+ᴇ+ɴ+ᴛ+ꜱˎˊ-)
+
+</div>
+
+<div align="center">
+<details>
+<summary>   <img src="https://github.com/user-attachments/assets/017b36e7-3d67-452a-a853-afcce751209d" width="69"> </summary>
+
+<div align="center">
+
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ✿ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
 -ˋˏ<img src="https://github.com/user-attachments/assets/727b84ef-8140-4c90-8ca1-090cf0de6f46" style="max-width: 100%; height: auto;">
@@ -113,36 +141,18 @@
 
 </div>
 
-#
-
-<div align="center">
-
-<img src="https://github.com/user-attachments/assets/0c0fcfdd-65bb-4349-ab82-5d4107a99bd6" width="150">
-
-<img src="https://github.com/user-attachments/assets/5345f8e1-9f1a-4f5c-a4db-eed384e46b05" width="300">
-
-<img src="https://github.com/user-attachments/assets/b82333ce-b692-4cd0-8e56-7fe4e4ce22b0" width="150">
-</div>
-
-#
-
-<div align="center">
  
--ˋˏ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ˎˊ-
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=50&duration=1555&pause=1000&color=CF3F36&background=FFD62D00&center=true&vCenter=true&width=1500&height=100&lines=%CA%8F%E1%B4%8F%E1%B4%9C'%E1%B4%A0%E1%B4%87+%CA%99%E1%B4%87%E1%B4%87%C9%B4+%E1%B4%80%CA%9F%CA%9F+%E1%B4%8F%E1%B4%A0%E1%B4%87%CA%80%2C++%EA%9C%B1%E1%B4%8F+%CA%8F%E1%B4%8F%E1%B4%9C+%E1%B4%8D%E1%B4%9C%EA%9C%B1%E1%B4%9B'%E1%B4%A0%E1%B4%87+%EA%9C%B1%E1%B4%87%E1%B4%87%C9%B4+%E1%B4%80+%CA%9F%E1%B4%8F%E1%B4%9B.+;%E1%B4%A1%CA%9C%E1%B4%87%C9%B4+%CA%8F%E1%B4%8F%E1%B4%9C'%E1%B4%A0%E1%B4%87+%C9%A2%E1%B4%8F%E1%B4%9B+%E1%B4%9B%CA%9C%E1%B4%87+%E1%B4%9B%C9%AA%E1%B4%8D%E1%B4%87%E2%80%94;%E1%B4%9B%E1%B4%87%CA%9F%CA%9F+%E1%B4%8D%E1%B4%87+%CA%8F%E1%B4%8F%E1%B4%9C%CA%80+%EA%9C%B1%E1%B4%9B%E1%B4%8F%CA%80%CA%8F%E2%80%94+;%CA%8F%E1%B4%87%E1%B4%80%3F+)](https://git.io/typing-svg)
-
-
--ˋˏ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ -ˋˏ *ੈ✿⋆ ˎˊ- ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ˎˊ-
-
-![](https://komarev.com/ghpvc/?username=your-github-oaT-uH&color=cf3f36&label=-ˋ+ᴄ+ʟ+ɪ+ᴇ+ɴ+ᴛ+ꜱˎˊ-)
+</details>
 
 </div>
+
+
 
 <div align="center">
 
 <details>
-<summary> ꜱᴛʀᴀᴡ / ꜱᴇʟᴀ ( x-ᴛʀᴀ ɪɴꜰᴏ ) </summary>
+<summary>   <img src="https://github.com/user-attachments/assets/c7a33517-b6b8-469e-9f3f-76155c247540" width="69"> </summary>
 
 
 -ˋˏ ʏᴏᴜ'ᴠᴇ ꜱᴄʀᴏʟʟᴇᴅ ᴛʜɪꜱ ꜰᴀʀ, ᴡᴏᴡ ʏᴏᴜ ᴀʀᴇ—ɴᴏꜱʏ—ᴊᴋ ˎˊ- 
@@ -187,7 +197,7 @@
 
 <div align="center">
 <details>
-<summary> ( xX-ᴛʀᴀ ʙᴏɴᴜꜱ ɪɴꜰᴏ ) </summary>
+<summary>   <img src="https://github.com/user-attachments/assets/e6e850ca-0065-4e4c-a81c-05e38bfac1bd"  width="69"> </summary>
 
  <img src="https://github.com/user-attachments/assets/2f5d6337-5bd1-4ce4-8932-f03b92f28a5a" width="800">
   
@@ -214,3 +224,6 @@
 </details>
 
 </div>
+
+
+
