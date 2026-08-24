@@ -336,7 +336,45 @@
 
 -ˋˏ ꜱᴛᴇᴘ 5 ˎˊ-
 
-ᴛʜᴇ ꜰᴜɴ ᴘᴀʀᴛ, ᴡʜᴇʀᴇ ᴇᴠᴇʀʏᴛʜɪɴɢ ᴄᴏᴍᴇꜱ ᴛᴏɢᴇᴛʜᴇʀ. 
+ɴᴏᴡ ꜰᴏʀ ᴛʜᴇ ꜰᴜɴ ᴘᴀʀᴛ—ᴡʜᴇʀᴇ ᴇᴠᴇʀʏᴛʜɪɴɢ ᴄᴏᴍᴇꜱ ᴛᴏɢᴇᴛʜᴇʀ. 
+
+ᴛʜɪꜱ ɪꜱ ᴡʜᴇʀᴇ ʏᴏᴜ'ʟʟ ᴛᴀᴋᴇ ʏᴏᴜʀ ᴏᴡɴ ꜱᴘɪɴ ᴏɴ ᴛʜɪɴɢꜱ.
+
+ɪ'ʟʟ ʙᴇ ꜱᴜʀᴇ ᴛᴏ ꜱʜᴏᴡ ᴍᴜʟᴛɪᴘʟᴇ ᴠᴀʀɪᴀᴛɪᴏɴꜱ ᴀɴᴅ ᴇxᴀᴍᴘʟᴇꜱ, ꜱᴏ ʏᴏᴜ ᴄᴀɴ ᴄʜᴏᴏꜱᴇ ʏᴏᴜʀ ꜰᴀɴᴄʏ ᴀɴᴅ ɢᴏ ꜰʀᴏᴍ ᴛʜᴇʀᴇ.
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ 𝐅𝐈𝐑𝐒𝐓 𝐕𝐀𝐑𝐈𝐀𝐍𝐓 :
+
+<img src="https://github.com/user-attachments/assets/57b58978-600e-400f-a3d4-052e98cefc8c"     width="400">
+ 
+( ʟᴀʏᴇʀ 𝟣, ʟᴀʏᴇʀ 𝟤 , ʟᴀʏᴇʀ 𝟥 , ʟᴀʏᴇʀ 𝟨 )
+
+ᴛʜᴇꜱᴇ ʟᴀʏᴇʀꜱ, ᴡɪʟʟ ʙᴇ ᴛʜᴇ ʟɪɢʜᴛᴇʀ ᴘᴀʀᴛꜱ ᴏꜰ ʏᴏᴜʀ ᴇʏᴇꜱ.
+
+<img src="https://github.com/user-attachments/assets/f90a8905-b795-4381-88b5-c48af33d71d9"     width="400">
+<img src="https://github.com/user-attachments/assets/7ad66d19-0a56-4a85-8533-1fd36a03b173"     width="400">
+
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+
+ ( ʟᴀʏᴇʀ 𝟦, ʟᴀʏᴇʀ 𝟧 )
+
+ᴛʜᴇꜱᴇ ʟᴀʏᴇʀꜱ, ᴡɪʟʟ ʙᴇ ᴛʜᴇ ᴄᴏʟᴏʀꜰᴜʟ ᴘᴀʀᴛꜱ ᴏꜰ ʏᴏᴜʀ ᴇʏᴇꜱ.
+
+ <img src="https://github.com/user-attachments/assets/2a9c9e2f-1892-4ad2-bad3-b1660ba3b333"     width="400">
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+𝗕𝗢𝗡𝗨𝗦
+
+ᴍᴀᴋɪɴɢ ( ʟᴀʏᴇʀ 𝟣 ) ᴀ ᴍᴇᴅɪᴜᴍ ꜱʜᴀᴅᴇ—ɢɪᴠᴇꜱ ʏᴏᴜʀ ᴇʏᴇꜱ—ᴍᴏʀᴇ ᴅᴇᴘᴛʜ ᴛᴏ ᴛʜᴇᴍ.
+
+<img src="https://github.com/user-attachments/assets/d69a8935-90da-4263-a5b9-d85769a3b1fd"      width="400">
+
+
+<img src="https://github.com/user-attachments/assets/1fa371df-ed73-4667-a5b2-b54831b446a4"       width="400">
 
 
 
