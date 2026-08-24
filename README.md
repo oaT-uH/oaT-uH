@@ -233,8 +233,9 @@
 
 <div align="center">
 
- -ˋˏ ᴛᴀᴏ—ᴛᴏʀɪᴀʟ, ʜᴀʜᴀ—ɢᴇᴛ ɪᴛ? ˎˊ-
  
+ "ᴛᴀᴏ—ᴛᴏʀɪᴀʟ, ʜᴀʜᴀ—ɢᴇᴛ ɪᴛ?"
+
 <details>
 <summary>   <img src="https://github.com/user-attachments/assets/6405cab1-5bfe-4a17-b627-61d62f57470f"  width="250"> </summary>
 
@@ -517,6 +518,8 @@
 
 
 </details>
+
+ -ˋˏᴄʟɪᴄᴋ/ᴛᴀᴘ ► ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏˎˊ-
 
 #
 
