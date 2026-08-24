@@ -348,7 +348,7 @@
  -ˋˏ ┈ ┈ ┈ ˎˊ-
 #
 
- 𝐅𝐈𝐑𝐒𝐓 𝐕𝐀𝐑𝐈𝐀𝐍𝐓 :
+ 𝐅𝐈𝐑𝐒𝐓 𝐕𝐀𝐑𝐈𝐀𝐍𝐓 : ɪ ʟᴏᴠᴇ ᴜꜱɪɴɢ ᴛʜɪꜱ ᴏɴᴇ.
 
 <img src="https://github.com/user-attachments/assets/57b58978-600e-400f-a3d4-052e98cefc8c"     width="400">
 
