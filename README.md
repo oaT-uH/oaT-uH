@@ -231,5 +231,118 @@
 
 #
 
+<div align="center">
+<details>
+<summary>   <img src="https://github.com/user-attachments/assets/6405cab1-5bfe-4a17-b627-61d62f57470f"  width="69"> </summary>
+
+
+╭┈┈┈┈┈┈┈┈┈┈┈ ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ ┈┈┈┈┈┈┈┈┈┈┈╮
+
+ꜰʀᴏᴍ ᴍᴇ ᴛᴏ ʏᴏᴜ, ᴀ ᴛᴜᴛᴏʀɪᴀʟ ᴏɴ ʜᴏᴡ ɪ ᴅᴏ ᴍʏ ᴇʏᴇꜱ ꜰᴏʀ ᴛʜᴏꜱᴇ ᴡʜᴏ ᴀʀᴇ ᴄᴜʀɪᴏᴜꜱ
+(ɪ ᴋɴᴏᴡ ʏ'ᴀʟʟ ᴇxɪꜱᴛ).
+
+ᴛᴏ ɢᴇᴛ ᴛʜɪɴɢꜱ ꜱᴛᴀʀᴛᴇᴅ, ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ʀᴇᴘᴏꜱᴛ ᴛʜᴇꜱᴇ ᴛᴜᴛᴏʀɪᴀʟꜱ ɪɴ ᴏᴛʜᴇʀ ᴘʟᴀᴛꜰᴏʀᴍꜱ, ᴍᴜᴄʜ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇᴅ.
+
+╰┈┈┈┈┈┈┈┈┈┈┈ ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ ┈┈┈┈┈┈┈┈┈┈┈╯
+#
+
+-ˋˏ ꜱᴛᴇᴘ 𝟣 ˎˊ-
+
+ᴛʜᴇꜱᴇ ᴇʏᴇꜱ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ꜰʀɪᴇɴᴅ ⇣
+
+ <img src="https://github.com/user-attachments/assets/37305d6f-57c1-4845-964d-7d2e191329ca"  width="500">
+
+#
+
+-ˋˏ ꜱᴛᴇᴘ 2 ˎˊ-
+
+ɪ ᴡɪʟʟ ᴄʜᴏᴏꜱᴇ ᴛʜɪꜱ ᴏɴᴇ ꜰᴏʀ ᴛʜᴇ ᴛᴜᴛᴏʀɪᴀʟ. ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄʜᴏᴏꜱᴇ ᴀɴʏ—ꜱʜᴏᴡɴ ᴀʙᴏᴠᴇ.
+
+<img src="https://github.com/user-attachments/assets/3e5859dc-c30a-4d41-9bc1-0d499d55e86c"   width="50">
+
+-ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ᴀᴅᴅ ᴛʜɪꜱ ꜰᴀᴄᴇ ᴍᴀʀᴋɪɴɢ ᴀꜱ ʏᴏᴜʀ ꜰɪʀꜱᴛ ʟᴀʏᴇʀ.
+
+<img src="https://github.com/user-attachments/assets/1200bb3a-7253-4d8f-bca6-64cd3afcc6bb"    width="50">
+ 
+-ˋˏ ┈ ┈ ┈ ˎˊ-
+
+<img src="https://github.com/user-attachments/assets/84f14365-cac9-4646-bc17-61d5494b65df" width="500">
+
+ᴋᴇᴇᴘ ɪɴ ᴍɪɴᴅ, ᴛʜᴀᴛ 𝐋𝐀𝐘𝐄𝐑 𝐎𝐑𝐃𝐄𝐑 ɪꜱ 𝐈𝐌𝐏𝐎𝐑𝐓𝐀𝐍𝐓. 
+
+#
+
+-ˋˏ ꜱᴛᴇᴘ 3 ˎˊ-
+
+ᴀᴅᴅ ᴛʜᴇꜱᴇ ᴛᴡᴏ ᴍᴀʀᴋɪɴɢꜱ.
+
+<img src="https://github.com/user-attachments/assets/693ad66f-219b-4da8-8e17-5bed94528127"   width="50">
+<img src="https://github.com/user-attachments/assets/f67e9b20-2799-4f0f-9358-9f40b938fc23"  width="50">
+
+ᴛʜᴇʏ'ʟʟ ʙᴇ ʏᴏᴜʀ ʟᴀʏᴇʀ 𝟤 ᴀɴᴅ ʟᴀʏᴇʀ 𝟥 , ᴏʀᴅᴇʀ ᴅᴏɴ'ᴛ ᴍᴀᴛᴛᴇʀ ᴍᴜᴄʜ ʜᴇʀᴇ.
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ᴀᴅᴅ ᴛʜɪꜱ ᴍᴀʀᴋɪɴɢ ᴀꜱ ʏᴏᴜʀ ʟᴀʏᴇʀ 𝟦.
+
+ <img src="https://github.com/user-attachments/assets/44a1c8e6-cf6b-430b-909a-0d38f20be036"   width="50">
+  
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ᴀᴅᴅ ᴛʜɪꜱ ᴍᴀʀᴋɪɴɢ ᴀꜱ ʏᴏᴜʀ ʟᴀʏᴇʀ 5.
+
+ <img src="https://github.com/user-attachments/assets/6b70ee71-a675-481a-a752-9f1806709265"   width="50">
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ᴀᴅᴅ ᴛʜɪꜱ ᴍᴀʀᴋɪɴɢ ᴀꜱ ʏᴏᴜʀ ʟᴀʏᴇʀ 6.
+
+ <img src="https://github.com/user-attachments/assets/426316a3-9b70-4860-a55a-55a9b4d0f281"   width="50">
+
+  -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+  ᴛʜɪꜱ ɪꜱ ʜᴏᴡ ʏᴏᴜʀ ʟᴀʏᴇʀꜱ ꜱʜᴏᴜʟᴅ ʟᴏᴏᴋ ⇣
+
+<img src="https://github.com/user-attachments/assets/e7020fd8-2940-4be7-bf0c-457369e53354" width="500">
+
+#
+
+ -ˋˏ ꜱᴛᴇᴘ 4 ˎˊ-
+
+ᴀᴅᴅ ᴛʜᴇꜱᴇ ᴛᴡᴏ ᴍᴀʀᴋɪɴɢꜱ ᴀɴᴅ ᴍᴀᴋᴇ ᴛʜᴇᴍ ᴛʜᴇ ᴄᴏʟᴏʀ ᴏꜰ ʏᴏᴜʀ ᴘᴏɴʏ'ꜱ ꜰᴀᴄᴇ.
+
+<img src="https://github.com/user-attachments/assets/f3ba5bc5-2f75-4aa7-9b87-4fd090473a7b"    width="50">
+<img src="https://github.com/user-attachments/assets/e3f11fe9-4d81-4439-be5e-a0d441100e3b"   width="50">
+
+ᴛʜᴇꜱᴇ ᴛᴡᴏ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ʟᴀʏᴇʀ 7 ᴀɴᴅ ʟᴀʏᴇʀ 8.
+
+<img src="https://github.com/user-attachments/assets/431026ae-0818-4f8f-8859-c7f408ace48b"   width="500">
+
+  -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+  ᴅᴏɴ'ᴛ ꜰᴏʀɢᴇᴛ ᴛᴏ ᴇɴᴀʙʟᴇ ᴇʏᴇ ꜱʜᴀᴅᴏᴡ.
+
+<img src="https://github.com/user-attachments/assets/2761e6ef-bdcb-464e-8a83-1906f635f8dd"   width="500">
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ ꜱᴏ ꜰᴀʀ, ʏᴏᴜʀ ᴘᴏɴʏ ꜱʜᴏᴜʟᴅ ʟᴏᴏᴋ ꜱɪᴍɪʟᴀʀ ᴛᴏ ᴛʜɪꜱ—ᴡɪᴛʜ ᴛʜᴇ ꜰᴀᴄᴇ ᴍᴀʀᴋɪɴɢꜱ ʟᴀʏᴇʀꜱ—ɪɴ ᴏʀᴅᴇʀ ⇣
+
+<img src="https://github.com/user-attachments/assets/e32d69b1-de5d-43d7-9a78-18dfc85e00b7"    width="400">
+
+#
+
+-ˋˏ ꜱᴛᴇᴘ 5 ˎˊ-
+
+ᴛʜᴇ ꜰᴜɴ ᴘᴀʀᴛ, ᴡʜᴇʀᴇ ᴇᴠᴇʀʏᴛʜɪɴɢ ᴄᴏᴍᴇꜱ ᴛᴏɢᴇᴛʜᴇʀ. 
+
+
+
+</details>
+
+</div>
+
 
 
