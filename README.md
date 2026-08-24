@@ -99,6 +99,10 @@
 </div>
 
 <div align="center">
+
+ -ˋˏᴛᴀᴘ/ᴄʟɪᴄᴋ ► ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏˎˊ-
+
+ 
 <details>
 <summary>   <img src="https://github.com/user-attachments/assets/017b36e7-3d67-452a-a853-afcce751209d" width="69"> </summary>
 
@@ -224,6 +228,8 @@
 </details>
 
 </div>
+
+#
 
 
 
