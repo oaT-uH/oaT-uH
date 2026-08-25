@@ -2,8 +2,15 @@
 #
 
 <div align="center">
--ˋˏ*ੈ✿⋆ˎˊ- 
-</div>
+<details> <summary>-ˋˏ*ੈ✿⋆ˎˊ- </summary>
+
+  *ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴛʜᴇ ᴀʀᴛɪꜱᴛ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ )
+ </details>
+
+
+
+ 
+ </div>
 
 
 <div align="center">
@@ -23,5 +30,4 @@
 
 #
 #
-
 
