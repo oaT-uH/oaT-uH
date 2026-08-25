@@ -362,9 +362,19 @@
 
 𝐒𝐎𝐌𝐄𝐓𝐇𝐈𝐍𝐆 𝐓𝐎 𝐊𝐄𝐄𝐏 𝐈𝐍 𝐌𝐈𝐍𝐃:
 
-ɴᴏᴛ ᴀʟʟ ʜᴀɪʀꜱᴛʏʟᴇꜱ ᴡɪʟʟ ᴡᴏʀᴋ—ᴀᴅᴅɪɴɢ ᴀɴᴏᴛʜᴇʀ ʟᴀʏᴇʀ ( ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ ), ꜱʜᴏᴜʟᴅ ᴅᴇᴀʟ ᴡɪᴛʜ ᴍᴏꜱᴛ ᴏꜰ ɪᴛ.
+ɴᴏᴛ ᴀʟʟ ʜᴀɪʀꜱᴛʏʟᴇꜱ ᴡɪʟʟ ᴡᴏʀᴋ. 
+
+<div align="center">
+‎ᴀᴅᴅɪɴɢ ᴀɴᴏᴛʜᴇʀ ʟᴀʏᴇʀ ᴏꜰ ꜰᴀᴄᴇ ᴍᴀʀᴋɪɴɢꜱ ( ʟɪᴋᴇ ᴛʜᴇ ɪᴍᴀɢᴇ ʙᴇʟᴏᴡ )—ꜱʜᴏᴜʟᴅ ᴅᴇᴀʟ ᴡɪᴛʜ ᴍᴏꜱᴛ ᴏꜰ ɪᴛ.
+</div>
+
+<div align="center">
+‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+</div>
 
 -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+
 
 <img src="https://github.com/user-attachments/assets/dccacf29-d13c-4fc3-ab09-4fe9994c32b8"      width="400">
 <img src="https://github.com/user-attachments/assets/36f255dc-efbe-40db-bdce-b020ee897a54"      width="500">
