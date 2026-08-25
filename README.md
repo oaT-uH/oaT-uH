@@ -107,11 +107,20 @@
 
 -ˋˏ ┈ ┈ ┈ ˎˊ-
 
-ᴀᴅᴅ ᴛʜɪꜱ ꜰᴀᴄᴇ ᴍᴀʀᴋɪɴɢ ᴀꜱ ʏᴏᴜʀ ꜰɪʀꜱᴛ ʟᴀʏᴇʀ.
+ᴄʜᴏᴏꜱᴇ ᴀɴʏ ᴏꜰ ᴛʜᴇꜱᴇ ᴍᴀʀᴋɪɴɢꜱ ᴀɴᴅ ᴀᴅᴅ ɪᴛ ᴀꜱ ʏᴏᴜʀ ꜰɪʀꜱᴛ ʟᴀʏᴇʀ ⇣
 
-<img src="https://github.com/user-attachments/assets/1200bb3a-7253-4d8f-bca6-64cd3afcc6bb"    width="50">
- 
--ˋˏ ┈ ┈ ┈ ˎˊ-
+
+<div align="center">
+<img src="https://github.com/user-attachments/assets/b6458496-a0e3-4f5a-9314-4c12099ca3d4"    width="50">
+<img src="https://github.com/user-attachments/assets/e555259d-5467-4989-89d7-8563de31ec0e"    width="50">
+<img src="https://github.com/user-attachments/assets/2ea48e0b-9020-4812-94e5-0a48b5864463"    width="50">
+<img src="https://github.com/user-attachments/assets/478ad178-4fe9-4cf7-99d4-6e7089dc77a4"    width="50">
+</div>
+
+ -ˋˏ ┈ ┈ ┈ ˎˊ-
+
+ᴛʜᴇɴ ᴍᴀᴋᴇ ɪᴛ ᴀ ʟɪɢʜᴛ ᴄᴏʟᴏʀ.
+
 
 <img src="https://github.com/user-attachments/assets/84f14365-cac9-4646-bc17-61d5494b65df" width="500">
 
