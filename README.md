@@ -59,7 +59,8 @@
 <div align="center">
 <details> <summary>-ˋˏ*ੈ✿⋆ˎˊ- </summary>
 
-  *ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴛʜᴇ ᴀʀᴛ ᴀʙᴏᴠᴇ ᴀɴᴅ ᴘꜰᴘ )
+  *ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴛʜᴇ ᴀʀᴛ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ )
+
 
 
 
