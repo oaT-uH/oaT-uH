@@ -61,24 +61,70 @@
 
   *ੈ✿⋆ Credits: ([SushiSpin](https://x.com/Sushispin_)/ ᴛʜᴇ ᴀʀᴛ ᴀʙᴏᴠᴇ ) ([ぽぽん。](https://x.com/popon_1111) / ᴘꜰᴘ )
 
-
-
-
-
-
-
 #
 #
-
-
-
-
-
 
 <div align="center">
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 </div>
+
  
+ -ˋˏᴄʟɪᴄᴋ/ᴛᴀᴘ ► ʙᴇʟᴏᴡ ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏˎˊ-
+
+#
+#
+ 
+<details>
+<summary>-ˋˏ ɢɪ ᴛᴇᴀᴍ / ᴡɪꜱʜʟɪꜱᴛ ˎˊ-</summary>
+
+<div align="center">
+
+┈ -ˋˏ✿ˎˊ- ┈
+
+-ˋˏ<img src="https://github.com/user-attachments/assets/727b84ef-8140-4c90-8ca1-090cf0de6f46" style="max-width: 100%; height: auto;">
+ˎˊ- 
+
+
+<img src="https://github.com/user-attachments/assets/90098634-861a-4ff2-84e8-2213e7c4f961" style="max-width: 100%; height: auto;">
+
+┈ -ˋˏ✿ˎˊ- ┈
+
+
+<img src="https://github.com/user-attachments/assets/7dbf9432-ad42-4018-b53c-381321b7ace0" width="500">
+
+<img src="https://github.com/user-attachments/assets/684a362b-8ac5-4a70-88f1-bf10108c42d9" width="500">
+
+<img src="https://github.com/user-attachments/assets/defbe589-23d2-4047-8dd6-c909b138d92a" width="500">
+
+<img src="https://github.com/user-attachments/assets/3ef90ec8-d562-45b8-909a-d69ce7ec5e1e" width="500">
+
+
+┈ -ˋˏ✿ˎˊ- ┈
+
+-ˋˏ<img  src="https://github.com/user-attachments/assets/c9036fa2-e32c-422b-807e-cf465c0df1e4" style="max-width: 100%; height: auto;">
+ˎˊ- 
+
+
+<img src="https://github.com/user-attachments/assets/766f7aac-1dab-47f1-88df-1c2fc6fda7ef" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/4b799e38-b250-44d8-b6c3-fe3aac70edaf" style="max-width: 100%; height: auto;">
+
+
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇᴅ : 𝟢𝟩/𝟤𝟤/𝟤𝟢𝟤𝟨
+
+
+
+</details>
+
+#
+#
+
+ <details><summary>-ˋˏ ᴇʏᴇ ᴛᴜᴛᴏʀɪᴀʟ ˎˊ-</summary>
+
+  #
+  #
+
+  
  ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ 
 
 ꜰʀᴏᴍ ᴍᴇ ᴛᴏ ʏᴏᴜ—ᴀ ᴛᴜᴛᴏʀɪᴀʟ—ᴏɴ ʜᴏᴡ ɪ ᴄʀᴇᴀᴛᴇ ᴍʏ **ᴇʏᴇꜱ**—ꜰᴏʀ ᴛʜᴏꜱᴇ ᴡʜᴏ ᴀʀᴇ ᴄᴜʀɪᴏᴜꜱ
@@ -394,9 +440,12 @@
 ɪ'ʟʟ ɢʟᴀᴅʟʏ ʜᴇʟᴘ ʏᴏᴜ ᴏᴜᴛ 🎔
 
  ┈ ┈ ┈ -ˋˏ ༻✿༺ ˎˊ- ┈ ┈ ┈ 
+</details>
 
-
+#
+#
 
  </details>
  </div>
+
 
