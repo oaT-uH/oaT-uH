@@ -96,7 +96,7 @@
 
 <img src="https://github.com/user-attachments/assets/defbe589-23d2-4047-8dd6-c909b138d92a" width="500">
 
-<img src="https://github.com/user-attachments/assets/3ef90ec8-d562-45b8-909a-d69ce7ec5e1e" width="500">
+<img src="https://github.com/user-attachments/assets/566e05ea-d589-4e0c-be06-4b4e3126483b"  width="500">
 
 
 ┈ -ˋˏ✿ˎˊ- ┈
@@ -107,10 +107,10 @@
 
 <img src="https://github.com/user-attachments/assets/766f7aac-1dab-47f1-88df-1c2fc6fda7ef" style="max-width: 100%; height: auto;">
 
-<img src="https://github.com/user-attachments/assets/4b799e38-b250-44d8-b6c3-fe3aac70edaf" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/b951d498-fdbd-4ac3-91d3-7f580e6799dc" style="max-width: 100%; height: auto;">
 
 
-ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇᴅ : 𝟢𝟩/𝟤𝟤/𝟤𝟢𝟤𝟨
+ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇᴅ : 𝟣𝟢/𝟣𝟪/𝟤𝟢𝟤𝟨
 
 
 
